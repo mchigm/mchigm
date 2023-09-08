@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning python, html, and hopefully java
 - 💞️ I’m looking to collaborate on a game (not GOW)
 - 📫 How to reach me: Discord §r MCHIGM bot #6688
+PLZ HELP I FORGOT HOW TO CODE AHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH!
 
 <!---
 mchigm/mchigm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
